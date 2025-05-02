@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ruthless
+- 👋 Hi, I’m ruthless 🪿
 - 👀 I’m interested in nfts and crypto
 - 🌱 I’m currently learning web3
 - 💞️ I’m looking to collaborate as nft projects cm or mod
